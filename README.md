@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="czsEBtcUk79wS98weWdBLK-c23Sb4RyZpuXjNWU5Aow" />
 # Abdulmalik Musa Tepo
 **Founder | Problem Solver | Scholar**
 
